@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @OldBigOne
+- 👀 I’m interested in finding online job
+- 🌱 I’m currently learning Data Analytics
+- 📫 How to reach me 1974ieremenko@gmail.com
+- ⚡ Fun fact: You can spot a happy biker by the mosquitoes in their teeth!
